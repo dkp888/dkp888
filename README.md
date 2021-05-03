@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Dwitikrushna Parida
 - 👀 I’m interested in Coding and learn new things
-- 🌱 I’m currently learning Servicenow
+- 🌱 I’m currently stay in Bangalore
 - 💞️ I’m looking to a new platfrom to make some FuN
 - 📫 Any one reach me :> paridadkp1995@outlook.com
 
